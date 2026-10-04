@@ -1,1 +1,1 @@
-# Irrational-decision-in-this-environment-may-stem-from-strategies-developed-in-another-environment
+# Irrational-decisions-in-this-environment-may-stem-from-strategies-developed-in-another-environment
